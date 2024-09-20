@@ -1,1 +1,0 @@
-# davidandpoppy.github.io
